@@ -1,2 +1,0 @@
-# NEW
-LEXSH1N:TEAM
